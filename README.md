@@ -1,8 +1,5 @@
 stady
 =====
-naosita!!!!
-
-naosita!!!!
-
+!!!!!
 
 
